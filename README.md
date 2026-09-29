@@ -1,1 +1,0 @@
-# spskladno-programovani
